@@ -1,4 +1,4 @@
-# Check<br>
+# Check Or EUROS<br>
 Make Check to: <b>Charles Ridley</b><br>Amount = $995 for Master Class<br> If this is for a Private Intensive, multiply the number of hours X $300.
 
 ON BACK OF CHECK, <u>ABOVE THE ENODORSEMENT LINE</u>, Write:<br><br>Deposit Checking Only 141896
